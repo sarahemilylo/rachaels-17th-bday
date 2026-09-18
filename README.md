@@ -280,8 +280,6 @@ the entire experience was designed specifically for her birthday. 🎂
 
 **Sarah**
 
-Made with ❤️ for Rachael.
-
 ---
 
 ### 🎈 Happy Birthday Rachael! 🎈
